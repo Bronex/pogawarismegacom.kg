@@ -1,0 +1,1 @@
+# pogawarismegacom.kg
